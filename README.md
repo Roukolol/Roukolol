@@ -4,6 +4,7 @@
 ☆ Artificial intelligence & things related to databases fascinates me.
 ☆ I can speak fluent english and italian, understand portuguese fairly decently.
 
+
 If you wish to contact me please do so at:
 
 
