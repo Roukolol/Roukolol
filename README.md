@@ -7,6 +7,7 @@
   *  Math rock enthusiast. ☆
 
 If you wish to contact me please do so at:
+ [Pending links]
 
 
 <!---
